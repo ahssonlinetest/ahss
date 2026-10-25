@@ -1,0 +1,1 @@
+Amalorpavam Hr Sec School
